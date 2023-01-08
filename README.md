@@ -1,0 +1,2 @@
+# mini_projkjekt
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
